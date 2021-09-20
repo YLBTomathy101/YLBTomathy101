@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @YLBTomathy101
+- You can reach me by Email tomathyw101@gmail.com or Discord Tomathy#2421
